@@ -4,5 +4,5 @@
 <p align="center"><img src="https://media.discordapp.net/attachments/1451831024416985246/1565897469718437948/image.png?ex=6ae69329&is=6ae541a9&hm=70a2d70675137350b4a49b50a5765eed00609919223be40b84198592bbfe64cc&=&format=webp&quality=lossless"width="100" height="50"> 
 <p align="center"><sub> if you ever plan on interacting, be patient w me cuz it takes a bit for me to warm up... note that im sensitive, and i tend to overshare sometimes.. and i MIGHT be mentally ill idk jus expect some mood swings.. gulp </sub>
 <p align="center"><sup> <ins> some of my interests include of tmirb, gnb, phighting, madness combat/project nexus, die of death, media with dignity and mouthman,a BIT of bad things.. jus like a tiny bit..,  and countryhumans.. </ins> </sup>
-<p align="center"><img src="https://64.media.tumblr.com/94be1c9c6d96e83fca0ca9d6666ccd55/33171e372415b0e2-bf/s75x75_c1/d686eb8b59bc930757ccb674c51b9d84903de99f.gifv"width="25" height="25"> 
+<p align="center"><img src="https://media.discordapp.net/attachments/1451831024416985246/1565901440126292008/cutie.webp?ex=6ae696dc&is=6ae5455c&hm=e666b80be67ac095e08b6df7b5520b99d4eea59d08e19a88028ec768b1b07018&=&animated=true"width="25" height="25"> 
 
