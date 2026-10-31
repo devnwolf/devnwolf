@@ -5,4 +5,4 @@
 <p align="center"><sub> if you ever plan on interacting, be patient w me cuz it takes a bit for me to warm up... note that im sensitive, and i tend to overshare sometimes.. and i MIGHT be mentally ill idk jus expect some mood swings.. gulp </sub>
 <p align="center"><sup> <ins> some of my interests include of tmirb, gnb, phighting, madness combat/project nexus, die of death, media with dignity and mouthman,a BIT of bad things.. jus like a tiny bit..,  and countryhumans.. </ins> </sup>
 <p align="center"><img src="https://64.media.tumblr.com/94be1c9c6d96e83fca0ca9d6666ccd55/33171e372415b0e2-bf/s75x75_c1/d686eb8b59bc930757ccb674c51b9d84903de99f.gifv"width="25" height="25"> 
-<p align="center"><sup>  wanna know more about me, or sign my ata?  <a href="https://crashed-site.straw.page//">nekoweb</a> & <a href="https://devwolf.atabook.org/">
+
