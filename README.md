@@ -5,4 +5,4 @@
 <p align="center"><sub> if you ever plan on interacting, be patient w me cuz it takes a bit for me to warm up... note that im sensitive, and i tend to overshare sometimes.. and i MIGHT be mentally ill idk jus expect some mood swings.. gulp </sub>
 <p align="center"><sup> <ins> some of my interests include of tmirb, gnb, phighting, madness combat/project nexus, die of death, media with dignity and mouthman,a BIT of bad things.. jus like a tiny bit..,  and countryhumans.. </ins> </sup>
 <p align="center"><img src="https://media.discordapp.net/attachments/1451831024416985246/1565901440126292008/cutie.webp?ex=6ae696dc&is=6ae5455c&hm=e666b80be67ac095e08b6df7b5520b99d4eea59d08e19a88028ec768b1b07018&=&animated=true"width="25" height="25"> 
-<p align="center"><sup> <b> WANNA KNOW MORE ABOUT ME AND STUFF!?!?!</b> more info on my... <a href="https://crashed-site.straw.page/ ">strawpage..</a>
+<p align="center"><sup> <b> WANNA KNOW MORE ABOUT ME AND STUFF!?!?!</b> more info on my... <a href="https://crashed-site.straw.page/ ">strawpage..</a> & <a href="https://devwolf.atabook.org/">and atabook !</a>
