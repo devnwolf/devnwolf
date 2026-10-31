@@ -3,4 +3,4 @@
 <p align="center"><sup> <ins>i really like to make new friends, PLEASE! leave a message on my ata, i love reading them... also im a devin kinnie.../ins> </sup>
 <p align="center"><img src="https://media.discordapp.net/attachments/1451831024416985246/1565897469718437948/image.png?ex=6ae69329&is=6ae541a9&hm=70a2d70675137350b4a49b50a5765eed00609919223be40b84198592bbfe64cc&=&format=webp&quality=lossless"width="100" height="50"> 
 <p align="center"><sub> if you ever plan on interacting, be patient w me cuz it takes a bit for me to warm up... note that im sensitive, and i tend to overshare sometimes.. and i MIGHT be mentally ill idk jus expect some mood swings.. gulp </sub>
-<p align="center"><sup> <ins> some of my interests include of tmirb, gnb, phighting, madness combat/project nexus, die of death, media with dignity and mouthman, and countryhumans.. </ins> </sup>
+<p align="center"><sup> <ins> some of my interests include of tmirb, gnb, phighting, madness combat/project nexus, die of death, media with dignity and mouthman,a BIT of bad things.. jus like a tiny bit..,  and countryhumans.. </ins> </sup>
